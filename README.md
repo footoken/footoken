@@ -1,0 +1,2 @@
+# footoken
+ICO token :D
